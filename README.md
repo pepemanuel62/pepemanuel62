@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @pepemanuel
 - 👀 I’m interested in hot women
-- 🌱 I’m currently learning why I cant find a hot woman and to code
+- 🌱 I’m currently learning how to find a hot woman and to code
 - 💞️ I’m looking to collaborate on finding a hot woman
 - 📫 How to reach me: dont wanna be reached unless you're a hot woman
 - 😄 Pronouns: Fuck/BillGates
