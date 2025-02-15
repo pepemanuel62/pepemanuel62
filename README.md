@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @pepemanuel62
+- 👋 Hi, I’m @pepemanuel
 - 👀 I’m interested in hot women
 - 🌱 I’m currently learning why I cant find a hot woman and to code
 - 💞️ I’m looking to collaborate on finding a hot woman
